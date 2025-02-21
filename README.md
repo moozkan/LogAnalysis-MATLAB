@@ -107,7 +107,7 @@ Total Usage Time: 8.9 hours
 -----------------------------------------------------------
 
 
-## **Mustafa Onur Özkan** 👨‍💻
+## **Mustafa Onur Ozkan** 👨‍💻
 ### **Fullstack Software Develop Specialist** 💻
 
 ## 🔗 Social Media - Github Profile
